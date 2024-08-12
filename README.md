@@ -1,4 +1,4 @@
-# Vouches
+# Vouches (some of them were in my discord server, which got termed)
 Pro Hitters Package (450R$)  <br />
 ![image](https://github.com/user-attachments/assets/45dfd4e6-e150-451a-a6da-610151170c7d)<br />
 Beginner Package (350R$) <br />
