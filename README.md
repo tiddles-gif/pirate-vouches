@@ -5,5 +5,6 @@ Beginner Package (350R$) <br />
 ![image](https://github.com/user-attachments/assets/81d74a7f-377b-4db4-826b-17f246ca63da)<br />
 Beginner Package (350R$) <br />
 ![image](https://github.com/user-attachments/assets/196fb3d0-81e4-4201-8785-98b7a03782fe)<br />
-
+Owner's "How to find victims" Method + VIP Logger (200R$ + 450R$) <br />
+![image](https://github.com/user-attachments/assets/1d303c8a-84c0-4cc6-860c-436905a6156b) <br />
 
