@@ -13,6 +13,9 @@ Beginner Package (350R$) <br />
 ![image](https://github.com/user-attachments/assets/aa0859e4-f64c-4bf4-9def-2adde320ade1) <br />
 Professional Beaming Package (450R$) <br />
 ![image](https://github.com/user-attachments/assets/b7911da8-9b3f-46d6-b59d-aa032dd3ef9b) <br />
+VIP Logger (450R$) <br />
+![image](https://github.com/user-attachments/assets/b85d3b2a-e58c-4023-9119-44bf49f93825) <br />
+
 
 
 
