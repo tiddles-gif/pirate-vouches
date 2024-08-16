@@ -11,4 +11,8 @@ VIP Logger (450R$) <br />
 ![image](https://github.com/user-attachments/assets/62d380c0-9537-4029-92a0-e4bd10b529d6) <br />
 Beginner Package (350R$) <br />
 ![image](https://github.com/user-attachments/assets/aa0859e4-f64c-4bf4-9def-2adde320ade1) <br />
+Professional Beaming Package (450R$) <br />
+![image](https://github.com/user-attachments/assets/b7911da8-9b3f-46d6-b59d-aa032dd3ef9b) <br />
+
+
 
